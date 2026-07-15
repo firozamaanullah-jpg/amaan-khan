@@ -45,4 +45,4 @@ To pursue an MSc in Data Science at Edith Cowan University and build a career as
 
 ## Connect with Me
 
-LinkedIn:
+LinkedIn: https://www.linkedin.com/in/amanullah-firoz-4a60bb329/
